@@ -18,4 +18,5 @@ _🚀 Flexibility and Personalization: Customize InfinityOS to suit your needs a
 
 ### This is Coming Soon Project, Estimated Time to Finalizing is 15th October 2026
 
-### Get ready for a limitless experience with InfinityOS 🔥
+_You Also Can Try Concept Of InfinityOS via Canva Presentation, Link below 👇_
+[Bring Me To InfinityOS](https://s.id/infinityOSbetaconcept)
