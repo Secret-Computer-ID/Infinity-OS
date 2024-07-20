@@ -14,5 +14,8 @@ _🎨 Modern Design: Elegant and easy-to-use interface, designed to provide maxi
 
 _🚀 Flexibility and Personalization: Customize InfinityOS to suit your needs and style. With a variety of customization options, you can make this operating system truly yours._
 
-### Join us
-### Get ready for a limitless experience with InfinityOS. What are you waiting for? Be the first to try InfinityOS when it launches and experience the revolution in computing!
+
+
+### This is Coming Soon Project, Estimated Time to Finalizing is 15th October 2026
+
+### Get ready for a limitless experience with InfinityOS 🔥
